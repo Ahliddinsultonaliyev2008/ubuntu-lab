@@ -1,1 +1,1 @@
-my ubuntu and cybersecurity laerning environment.
+my ubuntu and cybersecurity laerning environment. zo'rmiaa
